@@ -1,1 +1,1 @@
-[Strafehook](https://imgur.com/a/rWsXCgW)
+![Strafehook](https://i.imgur.com/mpEvvZx.png)
